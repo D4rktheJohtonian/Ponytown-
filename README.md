@@ -17,11 +17,13 @@ I usually play Ponytown if I'm bored (besides Pokémon TCGP, obviously).
 
 You might even see me in the server for hours! 😁
 
-*I'm either in the safe server under a tree near a bench, on a cliff left near the spawn point. In Indonesian server, I usually wandering around in quiet place.* 
+*I'm either in the safe server near the FNF area and TMC/MP area. In Indonesian server, I usually wandering around in quiet place.* 
 
-![Untitled37_20250122140120](https://github.com/user-attachments/assets/8dba33ac-c2a4-4b12-8982-98bcc35c14a0)
+![Screenshot_20250127_191741](https://github.com/user-attachments/assets/96b9d825-28a6-4131-9691-a797be348963)
 
-I always use Pokémon characters as my pony. I often use Red, Ethan, and Silver. ❤️💛
+
+
+I usually use Pokémon and SAW characters as my pony. I often use Red, Ethan, William, and Gordon. ❤️💛
 
 My ponies has basic colouring but abstract shading. I use light colour as the outline shading lol.
 
