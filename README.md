@@ -3,17 +3,16 @@
 ![download](https://github.com/user-attachments/assets/146cb041-f100-4a1e-9dda-16a8b81d5abc)
 
 
+If you're on Pt and share same interest(s) with me, then I suggest you to found and int with me! ✨
 
-I'm bored, so I decided to make this. ✨
 
-I like writing paragraphs quite a lot. (digitally only. My wrist broke if traditionally).
 
 ![cyndaquil](https://github.com/user-attachments/assets/1ad4321c-f6ef-4db4-a33f-070a6180a7c2)
 
 
-### Anyways, let's just get into the point.
+### How to found me,
 
-I usually play Ponytown if I'm bored (besides Pokémon TCGP, obviously).
+Usually play Ponytown if I'm bored (besides Pokémon TCGP, obviously).
 
 You might even see me in the server for hours! 😁
 
