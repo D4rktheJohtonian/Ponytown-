@@ -10,7 +10,7 @@ If you're on Pt and share same interest(s) with me, then I suggest you to found 
 ![cyndaquil](https://github.com/user-attachments/assets/1ad4321c-f6ef-4db4-a33f-070a6180a7c2)
 
 
-### How to found me,
+### How to found me.
 
 Usually play Ponytown if I'm bored (besides Pokémon TCGP, obviously).
 
@@ -25,6 +25,8 @@ Oh, and my timezone is UTC+7 (I think-)
 ![Screenshot_20250127_191741](https://github.com/user-attachments/assets/96b9d825-28a6-4131-9691-a797be348963)
 
 
+
+I don't mind C+H at all, as long as you don't cover me. Feel free to be close near me! W2i pref cause I afk/making skins.
 
 I usually use Pokémon, God of War, or SAW characters as my pony. I often use Red, Ethan, Hermes, and William. ❤️💛
 
