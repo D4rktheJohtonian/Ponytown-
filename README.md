@@ -3,14 +3,14 @@
 ![download](https://github.com/user-attachments/assets/146cb041-f100-4a1e-9dda-16a8b81d5abc)
 
 
-If you're on Pt and share same interest(s) with me, then I suggest you to found and int with me! ✨
+If you're on Pt and share same interest(s) with me, then I suggest you to find and int with me! ✨
 
 
 
 ![cyndaquil](https://github.com/user-attachments/assets/1ad4321c-f6ef-4db4-a33f-070a6180a7c2)
 
 
-### How to found me.
+### How to find me.
 
 Usually play Ponytown if I'm bored (besides Pokémon TCGP, obviously).
 
@@ -26,9 +26,9 @@ Oh, and my timezone is UTC+7 (I think-)
 
 
 
-I don't mind C+H at all, as long as you don't cover me. Feel free to be close near me! W2i pref cause I afk/making skins.
+I don't mind C+H at all, as long as you don't cover me. Feel free to be close near me! W2i pref cause I'm usually afk/making skins.
 
-I usually use Pokémon, God of War, or SAW characters as my pony. I often use Red, Ethan, Hermes, and William. ❤️💛
+I use Ethan ALOT, because there's huge possibility that I might kin him! (Also if you're one of my friend and also kin him, I'm really sorry I swear 🙏🏼).
 
 My ponies has basic colouring but abstract shading. I use light colour as the outline shading lol.
 
